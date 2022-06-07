@@ -1,3 +1,5 @@
+![Photo to cv](https://user-images.githubusercontent.com/106680845/172433523-3f88c186-0cf4-402f-ac44-0eb71a754426.jpg)
+
 # Dmitriy Bernat
 
 ## Contact information:
